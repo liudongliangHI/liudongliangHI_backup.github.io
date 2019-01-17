@@ -1,3 +1,3 @@
 # Dongliang Liu
 
-![image](https://github.com/liudongliangHI/liudongliangHI.github.io/blob/master/DSC_2494.JPG)
+![image 10% ](https://github.com/liudongliangHI/liudongliangHI.github.io/blob/master/DSC_2494.JPG)
